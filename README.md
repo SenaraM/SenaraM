@@ -3,7 +3,7 @@
 
 
 - 🔭 I’m currently working on **Year 2 Semester 2 IT Project**
-- 🌱 I’m currently learning **Node.js**
+
 - 📫 How to reach me: senaramallikahewa@gmail.com
 
 **CONNECT WITH ME:**
