@@ -1,8 +1,9 @@
 ### Hi there I'm Senara Mallikahewa 👋
 
-
-
-- 📫 How to reach me: senaramallikahewa@gmail.com
+ - 🔭 I’m currently working on something cool :bulb: 
+ - 🌱 learning New Techs & Recreating :construction:  
+ - 👯 looking to collaborate on New Projects ☺
+ - 📫 How to reach me: [@senara mallikahewa](mailto:senaramallikahewa@gmail.com;)
 
 **CONNECT WITH ME:**
 
