@@ -3,7 +3,7 @@
  - 🔭 I’m currently working on something cool :bulb: 
  - 🌱 Learning new tech & recreating :construction:  
  - 👯 Looking forward to collaborating on new projects ☺
- - 📫 How to reach me: [@senara mallikahewa](mailto:senaramallikahewa@gmail.com;)
+ - 📫 How to reach me: [@Senara Mallikahewa](mailto:senaramallikahewa@gmail.com;)
 
 **CONNECT WITH ME:**
 
